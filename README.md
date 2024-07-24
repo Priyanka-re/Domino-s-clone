@@ -1,1 +1,1 @@
-# Domino-s-clone (Priyanka ,Sreeja)
+# Domino-s-clone Project (Priyanka ,Sreeja)
